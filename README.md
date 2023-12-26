@@ -1,3 +1,5 @@
+İÇERİK
+
 Hafta 1: Bilişim Hukukuna Giriş
 
 Hafta 2: Kişisel Verileri Koruma Kanunu ve İnsan Hakları
